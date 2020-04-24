@@ -1,0 +1,1 @@
+see card [№12](./12 mass media.md)

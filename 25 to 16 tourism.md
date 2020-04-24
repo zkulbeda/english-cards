@@ -1,0 +1,1 @@
+see card [№16](./16 tourism.md)
