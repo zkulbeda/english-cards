@@ -30,3 +30,6 @@ As for me I prefer travelling by car. I think it's very convenient. You don't de
 #### 5. What difficulties can you have when visiting a foreign country? Is it possible to avoid them?
 
 Vitising a forighn country, people usually come in touch with culture, traditions and ways different from their own. Visitors should show respect fot the other culture and its traditions. In this way it will possible to avoid difficulties. I'm sure that having a good command of a foreign language, particulary English, is a must.
+<!--stackedit_data:
+eyJoaXN0b3J5IjpbNzQyMzY4OTg5XX0=
+-->
