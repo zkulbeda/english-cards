@@ -4,7 +4,7 @@
 
 It goes without saying that mass media has become an integral part of modern people's life. People need information in order to keep up with the whole world around them.
 
-Mass media include various types of media such as television, radio, newspapers and magazines. The Internet and TV are the most popular kind of mass media. We have many different channels and sites to watch films, sports, plays and find educational and cultural information. Everyone can find information on the Internet for themselves, but it make us addictive. THe effect mass media has argely depends on our choice of what we read and watch. So let's make intelligent choices. 
+Mass media include various types of media such as television, radio, newspapers and magazines. The Internet and TV are the most popular kind of mass media. We have many different channels and sites to watch films, sports, plays and find educational and cultural information. Everyone can find information on the Internet for themselves, but it make us addictive. The effect mass media has largely depends on our choice of what we read and watch. So let's make intelligent choices. 
 
 For example, I prefer whatching Discovery Channel on Youtube or read articles about modern technology.
 
@@ -31,3 +31,6 @@ Television has important role in our life. Hovever, watching television has thow
 First of all, there is a great number of channels which are specialized in various spheres. The second advantage of watching TV is that it gives families an opportunity to spend some time together.
 
 However, watching television may turn to be harmful for our health. Spending too mush time in front of a TV screen may affect out eyesight badly. Moreover, nowadays some TV programs and films include a lot of violent scenes and advertising. We need TV and it still the most convenient means of mass media.
+<!--stackedit_data:
+eyJoaXN0b3J5IjpbNDU5MDE4MDIyXX0=
+-->
