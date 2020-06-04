@@ -16,7 +16,7 @@ opportunity to learn more about the world where we live.
 #### 2. What means of transport do you prefer and why?
 
 Nowadays people can travel in different ways. People usually travel by air, by
-rain, by sea or by road. All means of travel have advantages and disadvantages.
+rail, by sea or by road. All means of travel have advantages and disadvantages.
 
 As for me I prefer travelling by car. I think it's very convenient. You don't
 depend on the timetable. You are free to stop and change the direction whenever
